@@ -12,5 +12,7 @@ linkedIN Task2 : https://shorturl.at/akv04
 
 linkedIN Task3 : https://shorturl.at/ouxBQ
 
+![Shivam Mishra_TechnoHacks_Offer Letter_Data Science](https://github.com/Shivam1431/TechnoHacks-Data_Science/assets/103066914/4a324012-67ae-4917-8e39-bca7989f167c)
+
 ![Shivam Mishra_TechnoHacks_Certificate_Data Science](https://github.com/Shivam1431/TechnoHacks-Data_Science/assets/103066914/abed8bd6-8e11-4d29-8e8b-95487018776f)
 
